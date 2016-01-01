@@ -1,0 +1,1 @@
+Kiga is a Japanese word that translates to "Daily Life", which is what kiga is based around. Every aspect of the gamemode will slowly evolve into the most immersive RP to be seen in garrysmod, or in fact the source engine itself!
